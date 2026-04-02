@@ -2,25 +2,25 @@
 
 > **Eternal**
 
-1. `7.70` **THE BEAST I WORSHIP** by AirStrikeForces, DD3985666, Eclipso_God1, Fugisuy957, Correctionless, & ziafeva [fteyl] [[https://www.youtube.com/watch?v=ACphu5esj2o](https://www.youtube.com/watch?v=ACphu5esj2o)]
+1. `7.50` **THE BEAST I WORSHIP** by AirStrikeForces, DD3985666, Eclipso_God1, Fugisuy957, Correctionless, & ziafeva [fteyl] [[https://www.youtube.com/watch?v=ACphu5esj2o](https://www.youtube.com/watch?v=ACphu5esj2o)]
 
-2. `7.61` **The Sin** by Marchiionne, alex28901, fxrezful, vX_Soraa & Vlayrs [fayvr] [[https://www.youtube.com/watch?v=XaTb_5pXLiY](https://www.youtube.com/watch?v=XaTb_5pXLiY)]
+2. `7.45` **The Sin** by Marchiionne, alex28901, fxrezful, vX_Soraa & Vlayrs [fayvr] [[https://www.youtube.com/watch?v=XaTb_5pXLiY](https://www.youtube.com/watch?v=XaTb_5pXLiY)]
 
-3. `7.50` **Death Corridor** by angeldusked, PabloRios7 & des1red_usernam3 [tpilb] [[https://www.youtube.com/watch?v=CX30PQC-tVc](https://www.youtube.com/watch?v=CX30PQC-tVc)]
+3. `7.39` **Death Corridor** by angeldusked, PabloRios7 & des1red_usernam3 [tpilb] [[https://www.youtube.com/watch?v=CX30PQC-tVc](https://www.youtube.com/watch?v=CX30PQC-tVc)]
 
-4. `7.48` **Rooms III** by box_3948, tabk123, fransis119, Milkchoco0621, Zap_lve & 40+ more [jvrpx] [[https://www.youtube.com/watch?v=GmD6nNxg2Vs](https://www.youtube.com/watch?v=GmD6nNxg2Vs)]  
+4. `7.38` **Rooms III** by box_3948, tabk123, fransis119, Milkchoco0621, Zap_lve & 40+ more [jvrpx] [[https://www.youtube.com/watch?v=GmD6nNxg2Vs](https://www.youtube.com/watch?v=GmD6nNxg2Vs)]  
 
-5. `7.47` **RIGOR** by ziafeva, Enszo, Zerixilous, I_zcy, em0ji_9, Jack_D03AW & angeldusked [qkrlf] [[https://www.youtube.com/watch?v=RRb6HowLTMU](https://www.youtube.com/watch?v=RRb6HowLTMU)]
+5. `7.37` **RIGOR** by ziafeva, Enszo, Zerixilous, I_zcy, em0ji_9, Jack_D03AW & angeldusked [qkrlf] [[https://www.youtube.com/watch?v=RRb6HowLTMU](https://www.youtube.com/watch?v=RRb6HowLTMU)]
 
-6. `7.45` **OSO** by Jestive_H [terht] [[https://www.youtube.com/watch?v=woByDVP-Q3k](https://www.youtube.com/watch?v=woByDVP-Q3k)]
+6. `7.35` **OSO** by Jestive_H [terht] [[https://www.youtube.com/watch?v=woByDVP-Q3k](https://www.youtube.com/watch?v=woByDVP-Q3k)]
 
-7. `7.43` **Structural Conundrum** by Blengen & Pat_WasTaken [yhkzs] [[https://www.youtube.com/watch?v=pXWW3M5NA4g](https://www.youtube.com/watch?v=pXWW3M5NA4g)]
+7. `7.33` **Structural Conundrum** by Blengen & Pat_WasTaken [yhkzs] [[https://www.youtube.com/watch?v=pXWW3M5NA4g](https://www.youtube.com/watch?v=pXWW3M5NA4g)]
 
-8. `7.40` **ULTRADESPAIR (Legacy)** by ziafeva [iymqc] [[https://www.youtube.com/watch?v=gTQYTIUEV-k](https://www.youtube.com/watch?v=gTQYTIUEV-k)]
+8. `7.31` **ULTRADESPAIR (Legacy)** by ziafeva [iymqc] [[https://www.youtube.com/watch?v=gTQYTIUEV-k](https://www.youtube.com/watch?v=gTQYTIUEV-k)]
 
-9. `7.35` **Oceanic Abyss** by Forbage [rsogx] [[https://www.youtube.com/watch?v=_1Jy6L3xOTE](https://www.youtube.com/watch?v=_1Jy6L3xOTE)]
+9. `7.30` **Oceanic Abyss** by Forbage [rsogx] [[https://www.youtube.com/watch?v=_1Jy6L3xOTE](https://www.youtube.com/watch?v=_1Jy6L3xOTE)]
 
-10. `7.30` **Ascension to Heaven** by Marchiionne, alex28901, ZPH03NIXX, box_3948, DevAdelso & RedVoidMaster [ath] [[https://www.youtube.com/watch?v=j3IoYLGceXQ](https://www.youtube.com/watch?v=j3IoYLGceXQ)]
+10. `7.29` **Ascension to Heaven** by Marchiionne, alex28901, ZPH03NIXX, box_3948, DevAdelso & RedVoidMaster [ath] [[https://www.youtube.com/watch?v=j3IoYLGceXQ](https://www.youtube.com/watch?v=j3IoYLGceXQ)]
 
 11. `7.28` **Peer Gynt** by Epi_cG, aqua2power, outcastrd & Freshlvy [yalsv] [[https://www.youtube.com/watch?v=waXZveOL0Zc](https://www.youtube.com/watch?v=waXZveOL0Zc)]
 
